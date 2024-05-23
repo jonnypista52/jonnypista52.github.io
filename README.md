@@ -1,1 +1,1 @@
-# https://jonnypista52.github.io/
+# jonnypista52.github.io/
